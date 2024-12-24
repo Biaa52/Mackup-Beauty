@@ -1,1 +1,1 @@
-# Mackup-Beauty
+# Makeup-Beauty
